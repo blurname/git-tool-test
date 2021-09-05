@@ -1,5 +1,5 @@
 nihao 
 this is a test
-can you hear me
+can you hear youself
 nice to meet you 
 not good
